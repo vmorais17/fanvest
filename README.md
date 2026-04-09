@@ -207,7 +207,7 @@ Thank you.
 
 **Vinicius Morais** — Co-founder & CTO, Fanvest Wagering Exchange (2019–2022)
 
-[LinkedIn](https://linkedin.com/in/viniciusmorais) · [GitHub](https://github.com/viniciusmorais)
+[LinkedIn](https://linkedin.com/in/vinicius-morais) · [GitHub](https://github.com/vmorais17)
 
 ---
 
